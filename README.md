@@ -11,3 +11,212 @@ All emojis consist of official emoji characters, emoji names and meanings listed
 
 The easiest way to quickly **copy and paste emojis**.
 ### List of Medium Light Skin Tone Emojis
+- 👋🏼 Waving Hand: Medium Light Skin Tone
+- 🤚🏼 Raised Back of Hand: Medium Light Skin Tone
+- 🖐🏼 Hand with Fingers Splayed: Medium Light Skin Tone
+- ✋🏼 Raised Hand: Medium Light Skin Tone
+- 🖖🏼 Vulcan Salute: Medium Light Skin Tone
+- 👌🏼 OK Hand: Medium Light Skin Tone
+- 🤏🏼 Pinching Hand: Medium Light Skin Tone
+- ✌🏼 Victory Hand: Medium Light Skin Tone
+- 🤞🏼 Crossed Fingers: Medium Light Skin Tone
+- 🤟🏼 Love You Gesture: Medium Light Skin Tone
+- 🤘🏼 Sign of the Horns: Medium Light Skin Tone
+- 🤙🏼 Call Me Hand: Medium Light Skin Tone
+- 👈🏼 Backhand Index Pointing Left: Medium Light Skin Tone
+- 👉🏼 Backhand Index Pointing Right: Medium Light Skin Tone
+- 👆🏼 Backhand Index Pointing Up: Medium Light Skin Tone
+- 👇🏼 Backhand Index Pointing Down: Medium Light Skin Tone
+- ☝🏼 Index Pointing Up: Medium Light Skin Tone
+- 🖕🏼 Middle Finger: Medium Light Skin Tone
+- 👍🏼 Thumbs Up: Medium Light Skin Tone
+- 👎🏼 Thumbs Down: Medium Light Skin Tone
+- ✊🏼 Raised Fist: Medium Light Skin Tone
+- 👊🏼 Oncoming Fist: Medium Light Skin Tone
+- 🤛🏼 Left Facing Fist: Medium Light Skin Tone
+- 🤜🏼 Right Facing Fist: Medium Light Skin Tone
+- 👏🏼 Clapping Hands: Medium Light Skin Tone
+- 🙌🏼 Raising Hands: Medium Light Skin Tone
+- 👐🏼 Open Hands: Medium Light Skin Tone
+- 🤲🏼 Palms Up Together: Medium Light Skin Tone
+- 🙏🏼 Folded Hands: Medium Light Skin Tone
+- ✍🏼 Writing Hand: Medium Light Skin Tone
+- 💅🏼 Nail Polish: Medium Light Skin Tone
+- 🤳🏼 Selfie: Medium Light Skin Tone
+- 💪🏼 Flexed Biceps: Medium Light Skin Tone
+- 🦵🏼 Leg: Medium Light Skin Tone
+- 🦶🏼 Foot: Medium Light Skin Tone
+- 👂🏼 Ear: Medium Light Skin Tone
+- 🦻🏼 Ear with Hearing Aid: Medium Light Skin Tone
+- 👃🏼 Nose: Medium Light Skin Tone
+- 👶🏼 Baby: Medium Light Skin Tone
+- 🧒🏼 Child: Medium Light Skin Tone
+- 👦🏼 Boy: Medium Light Skin Tone
+- 👧🏼 Girl: Medium Light Skin Tone
+- 🧑🏼 Person: Medium Light Skin Tone
+- 🧔🏼 Person: Medium Light Skin Tone, Beard
+- 👨🏼 Man: Medium Light Skin Tone
+- 👩🏼 Woman: Medium Light Skin Tone
+- 👨🏼‍🦰 Man: Medium Light Skin Tone, Red Hair
+- 👩🏼‍🦰 Woman: Medium Light Skin Tone, Red Hair
+- 👨🏼‍🦱 Man: Medium Light Skin Tone, Curly Hair
+- 👩🏼‍🦱 Woman: Medium Light Skin Tone, Curly Hair
+- 👨🏼‍🦳 Man: Medium Light Skin Tone, White Hair
+- 👩🏼‍🦳 Woman: Medium Light Skin Tone, White Hair
+- 👱🏼‍♂️ Man: Medium Light Skin Tone, Blond Hair
+- 👱🏼‍♀️ Woman: Medium Light Skin Tone, Blond Hair
+- 👨🏼‍🦲 Man: Medium Light Skin Tone, Bald
+- 👩🏼‍🦲 Woman: Medium Light Skin Tone, Bald
+- 🧓🏼 Older Person: Medium Light Skin Tone
+- 👴🏼 Old Man: Medium Light Skin Tone
+- 👵🏼 Old Woman: Medium Light Skin Tone
+- 👼🏼 Baby Angel: Medium Light Skin Tone
+- 💑🏼 Couple with Heart: Medium Light Skin Tone
+- 💏🏼 Kiss: Medium Light Skin Tone
+- 🙍🏼‍♂️ Man Frowning: Medium Light Skin Tone
+- 🙍🏼‍♀️ Woman Frowning: Medium Light Skin Tone
+- 🙎🏼‍♂️ Man Pouting: Medium Light Skin Tone
+- 🙎🏼‍♀️ Woman Pouting: Medium Light Skin Tone
+- 🙅🏼‍♂️ Man Gesturing No: Medium Light Skin Tone
+- 🙅🏼‍♀️ Woman Gesturing No: Medium Light Skin Tone
+- 🙆🏼‍♂️ Man Gesturing OK: Medium Light Skin Tone
+- 🙆🏼‍♀️ Woman Gesturing OK: Medium Light Skin Tone
+- 💁🏼‍♂️ Man Tipping Hand: Medium Light Skin Tone
+- 💁🏼‍♀️ Woman Tipping Hand: Medium Light Skin Tone
+- 🙋🏼‍♂️ Man Raising Hand: Medium Light Skin Tone
+- 🙋🏼‍♀️ Woman Raising Hand: Medium Light Skin Tone
+- 🧏🏼‍♂️ Deaf Man: Medium Light Skin Tone
+- 🧏🏼‍♀️ Deaf Woman: Medium Light Skin Tone
+- 🙇🏼‍♂️ Man Bowing: Medium Light Skin Tone
+- 🙇🏼‍♀️ Woman Bowing: Medium Light Skin Tone
+- 🤦🏼‍♂️ Man Facepalming: Medium Light Skin Tone
+- 🤦🏼‍♀️ Woman Facepalming: Medium Light Skin Tone
+- 🤷🏼‍♂️ Man Shrugging: Medium Light Skin Tone
+- 🤷🏼‍♀️ Woman Shrugging: Medium Light Skin Tone
+- 💆🏼‍♂️ Man Getting Massage: Medium Light Skin Tone
+- 💆🏼‍♀️ Woman Getting Massage: Medium Light Skin Tone
+- 💇🏼‍♂️ Man Getting Haircut: Medium Light Skin Tone
+- 💇🏼‍♀️ Woman Getting Haircut: Medium Light Skin Tone
+- 🤱🏼 Breast Feeding: Medium Light Skin Tone
+- 🤰🏼 Pregnant Woman: Medium Light Skin Tone
+- 👨🏼‍⚕️ Man Health Worker: Medium Light Skin Tone
+- 👩🏼‍⚕️ Woman Health Worker: Medium Light Skin Tone
+- 👨🏼‍🎓 Man Student: Medium Light Skin Tone
+- 👩🏼‍🎓 Woman Student: Medium Light Skin Tone
+- 👨🏼‍🏫 Man Teacher: Medium Light Skin Tone
+- 👩🏼‍🏫 Woman Teacher: Medium Light Skin Tone
+- 👨🏼‍⚖️ Man Judge: Medium Light Skin Tone
+- 👩🏼‍⚖️ Woman Judge: Medium Light Skin Tone
+- 👨🏼‍🌾 Man Farmer: Medium Light Skin Tone
+- 👩🏼‍🌾 Woman Farmer: Medium Light Skin Tone
+- 👨🏼‍🍳 Man Cook: Medium Light Skin Tone
+- 👩🏼‍🍳 Woman Cook: Medium Light Skin Tone
+- 👨🏼‍🔧 Man Mechanic: Medium Light Skin Tone
+- 👩🏼‍🔧 Woman Mechanic: Medium Light Skin Tone
+- 👨🏼‍🏭 Man Factory Worker: Medium Light Skin Tone
+- 👩🏼‍🏭 Woman Factory Worker: Medium Light Skin Tone
+- 👨🏼‍💼 Man Office Worker: Medium Light Skin Tone
+- 👩🏼‍💼 Woman Office Worker: Medium Light Skin Tone
+- 👨🏼‍🔬 Man Scientist: Medium Light Skin Tone
+- 👩🏼‍🔬 Woman Scientist: Medium Light Skin Tone
+- 👨🏼‍💻 Man Technologist: Medium Light Skin Tone
+- 👩🏼‍💻 Woman Technologist: Medium Light Skin Tone
+- 👨🏼‍🎤 Man Singer: Medium Light Skin Tone
+- 👩🏼‍🎤 Woman Singer: Medium Light Skin Tone
+- 👨🏼‍🎨 Man Artist: Medium Light Skin Tone
+- 👩🏼‍🎨 Woman Artist: Medium Light Skin Tone
+- 👨🏼‍✈️ Man Pilot: Medium Light Skin Tone
+- 👩🏼‍✈️ Woman Pilot: Medium Light Skin Tone
+- 👨🏼‍🚀 Man Astronaut: Medium Light Skin Tone
+- 👩🏼‍🚀 Woman Astronaut: Medium Light Skin Tone
+- 👨🏼‍🚒 Man Firefighter: Medium Light Skin Tone
+- 👩🏼‍🚒 Woman Firefighter: Medium Light Skin Tone
+- 👮🏼‍♂️ Man Police Officer: Medium Light Skin Tone
+- 👮🏼‍♀️ Woman Police Officer: Medium Light Skin Tone
+- 🕵🏼‍♂️ Man Detective: Medium Light Skin Tone
+- 🕵🏼‍♀️ Woman Detective: Medium Light Skin Tone
+- 💂🏼‍♂️ Man Guard: Medium Light Skin Tone
+- 💂🏼‍♀️ Woman Guard: Medium Light Skin Tone
+- 👷🏼‍♂️ Man Construction Worker: Medium Light Skin Tone
+- 👷🏼‍♀️ Woman Construction Worker: Medium Light Skin Tone
+- 🤴🏼 Prince: Medium Light Skin Tone
+- 👸🏼 Princess: Medium Light Skin Tone
+- 🎅🏼 Santa Claus: Medium Light Skin Tone
+- 🤶🏼 Mrs. Claus: Medium Light Skin Tone
+- 👳🏼‍♂️ Man Wearing Turban: Medium Light Skin Tone
+- 👳🏼‍♀️ Woman Wearing Turban: Medium Light Skin Tone
+- 👲🏼 Person with Skullcap: Medium Light Skin Tone
+- 🧕🏼 Woman with Headscarf: Medium Light Skin Tone
+- 🤵🏼 Person in Tuxedo: Medium Light Skin Tone
+- 👰🏼 Person With Veil: Medium Light Skin Tone
+- 🦸🏼‍♂️ Man Superhero: Medium Light Skin Tone
+- 🦸🏼‍♀️ Woman Superhero: Medium Light Skin Tone
+- 🦹🏼‍♂️ Man Supervillain: Medium Light Skin Tone
+- 🦹🏼‍♀️ Woman Supervillain: Medium Light Skin Tone
+- 🧙🏼‍♂️ Man Mage: Medium Light Skin Tone
+- 🧙🏼‍♀️ Woman Mage: Medium Light Skin Tone
+- 🧚🏼‍♂️ Man Fairy: Medium Light Skin Tone
+- 🧚🏼‍♀️ Woman Fairy: Medium Light Skin Tone
+- 🧛🏼‍♂️ Man Vampire: Medium Light Skin Tone
+- 🧛🏼‍♀️ Woman Vampire: Medium Light Skin Tone
+- 🧜🏼‍♂️ Merman: Medium Light Skin Tone
+- 🧜🏼‍♀️ Mermaid: Medium Light Skin Tone
+- 🧝🏼 Elf: Medium Light Skin Tone
+- 🧝🏼‍♂️ Man Elf: Medium Light Skin Tone
+- 🧝🏼‍♀️ Woman Elf: Medium Light Skin Tone
+- 🚶🏼‍♂️ Man Walking: Medium Light Skin Tone
+- 🚶🏼‍♀️ Woman Walking: Medium Light Skin Tone
+- 🧍🏼 Person Standing: Medium Light Skin Tone
+- 🧍🏼‍♂️ Man Standing: Medium Light Skin Tone
+- 🧍🏼‍♀️ Woman Standing: Medium Light Skin Tone
+- 🧎🏼 Person Kneeling: Medium Light Skin Tone
+- 🧎🏼‍♂️ Man Kneeling: Medium Light Skin Tone
+- 🧎🏼‍♀️ Woman Kneeling: Medium Light Skin Tone
+- 👫🏼 Woman and Man Holding Hands: Medium Light Skin Tone
+- 👬🏼 Men Holding Hands: Medium Light Skin Tone
+- 👭🏼 Women Holding Hands: Medium Light Skin Tone
+- 👨🏼‍🦯 Man with White Cane: Medium Light Skin Tone
+- 👩🏼‍🦯 Woman with White Cane: Medium Light Skin Tone
+- 👨🏼‍🦼 Man in Motorized Wheelchair: Medium Light Skin Tone
+- 👩🏼‍🦼 Woman in Motorized Wheelchair: Medium Light Skin Tone
+- 👨🏼‍🦽 Man in Manual Wheelchair: Medium Light Skin Tone
+- 👩🏼‍🦽 Woman in Manual Wheelchair: Medium Light Skin Tone
+- 🏃🏼‍♂️ Man Running: Medium Light Skin Tone
+- 🏃🏼‍♀️ Woman Running: Medium Light Skin Tone
+- 🕺🏼 Man Dancing: Medium Light Skin Tone
+- 💃🏼 Woman Dancing: Medium Light Skin Tone
+- 🕴🏼 Person in Suit Levitating: Medium Light Skin Tone
+- 🧖🏼‍♂️ Man in Steamy Room: Medium Light Skin Tone
+- 🧖🏼‍♀️ Woman in Steamy Room: Medium Light Skin Tone
+- 🤹🏼‍♂️ Man Juggling: Medium Light Skin Tone
+- 🤹🏼‍♀️ Woman Juggling: Medium Light Skin Tone
+- 🧘🏼‍♂️ Man in Lotus Position: Medium Light Skin Tone
+- 🧘🏼‍♀️ Woman in Lotus Position: Medium Light Skin Tone
+- 🤸🏼‍♂️ Man Cartwheeling: Medium Light Skin Tone
+- 🤸🏼‍♀️ Woman Cartwheeling: Medium Light Skin Tone
+- 🏌🏼‍♂️ Man Golfing: Medium Light Skin Tone
+- 🏌🏼‍♀️ Woman Golfing: Medium Light Skin Tone
+- ⛹🏼‍♂️ Man Bouncing Ball: Medium Light Skin Tone
+- ⛹🏼‍♀️ Woman Bouncing Ball: Medium Light Skin Tone
+- 🤾🏼‍♂️ Man Playing Handball: Medium Light Skin Tone
+- 🤾🏼‍♀️ Woman Playing Handball: Medium Light Skin Tone
+- 🏋🏼‍♂️ Man Lifting Weights: Medium Light Skin Tone
+- 🏋🏼‍♀️ Woman Lifting Weights: Medium Light Skin Tone
+- 🚴🏼‍♂️ Man Biking: Medium Light Skin Tone
+- 🚴🏼‍♀️ Woman Biking: Medium Light Skin Tone
+- 🏇🏼 Horse Racing: Medium Light Skin Tone
+- 🏂🏼 Snowboarder: Medium Light Skin Tone
+- 🏄🏼‍♂️ Man Surfing: Medium Light Skin Tone
+- 🏄🏼‍♀️ Woman Surfing: Medium Light Skin Tone
+- 🚣🏼‍♂️ Man Rowing Boat: Medium Light Skin Tone
+- 🚣🏼‍♀️ Woman Rowing Boat: Medium Light Skin Tone
+- 🏊🏼‍♂️ Man Swimming: Medium Light Skin Tone
+- 🏊🏼‍♀️ Woman Swimming: Medium Light Skin Tone
+- 🤽🏼‍♂️ Man Playing Water Polo: Medium Light Skin Tone
+- 🤽🏼‍♀️ Woman Playing Water Polo: Medium Light Skin Tone
+- 🧗🏼‍♂️ Man Climbing: Medium Light Skin Tone
+- 🧗🏼‍♀️ Woman Climbing: Medium Light Skin Tone
+- 🚵🏼‍♂️ Man Mountain Biking: Medium Light Skin Tone
+- 🚵🏼‍♀️ Woman Mountain Biking: Medium Light Skin Tone
+- 🛀🏼 Person Taking Bath: Medium Light Skin Tone
+- 🛌🏼 Person in Bed: Medium Light Skin Tone
